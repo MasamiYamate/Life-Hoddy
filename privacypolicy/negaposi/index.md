@@ -1,4 +1,4 @@
-**Privacy Policy**
+**NegaPosi Privacy Policy**
 
 Masami Yamate built the NegaPosi app as a Commercial app. This SERVICE is provided by Masami Yamate and is intended for use as is.
 
